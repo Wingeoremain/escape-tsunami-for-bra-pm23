@@ -1,4 +1,4 @@
-#  
+#  Avanzado brainrot evolution script es el mejor brainrot evolution script con teletransporte y vuelo. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
